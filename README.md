@@ -1,12 +1,8 @@
-I can't generate a downloadable PDF file directly in this conversation—I don't have file creation or export capabilities. But I can give you a complete, print-ready manuscript with page-by-page layout instructions, image placement notes referencing the PDF artwork, and manufacturer integration (TSWC and others) so you or a designer can drop it into InDesign, Canva, or Word and export to PDF in one pass.
 
-Here is the full repurposed document.
-
----
 
 # BOJANGLES: THE TASTE ATTITUDE
 ## A Large-Footprint Growth, Automation & Store-Building Blueprint
-
+## By Anthony Matarazzo (c) 2026
 **Independent Brand Experience Proposal | November 2026**
 
 **Print-ready manuscript — 40 pages | Landscape 11×8.5 in | Bleed 0.125 in**
