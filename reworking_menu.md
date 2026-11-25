@@ -1,3 +1,7 @@
+please organize an outline around these concepts and structure a complete
+write in detailed sentences using measurements that are accurate. desxribe technologies
+and also food handling priciples. 
+
 A few enhancement or type of work such as chopping steak, or sausague and place into the mac n cheese. 
 the sauce expands on work also in mashed potatoes.
 chopped chicken
